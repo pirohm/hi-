@@ -1,2 +1,0 @@
-# pirohm
-# Learn Everything
